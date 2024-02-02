@@ -1,2 +1,2 @@
-# hello_imazmixirpl1
-Haii aku adalah makhluk bumi
+AZMIASKIA_XIIRPL1
+
